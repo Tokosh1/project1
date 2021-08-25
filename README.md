@@ -1,2 +1,2 @@
-# um spam de sms
+Mudei de conta, esse código está desatualizado... 
 Confia 
